@@ -1,0 +1,1 @@
+# vmug-norway-june-19
